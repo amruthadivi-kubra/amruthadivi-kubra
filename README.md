@@ -4,6 +4,7 @@ ________________________________________________________________________________
 🖥️ **Conditions I like to work in**
 ______________________________________________________________________________________________________________________________________________________________________________
 • I like to work in quiet and peaceful environment.
+
 • I love a fixed desk but will move around different spaces.
 • When stuck for ideas I listen to music.
 • I like to work with group of people who are really passionate about their work.
